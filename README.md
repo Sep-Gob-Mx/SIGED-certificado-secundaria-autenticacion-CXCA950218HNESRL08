@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CXCA950218HNESRL08
+CXCA950218HNESRL08
